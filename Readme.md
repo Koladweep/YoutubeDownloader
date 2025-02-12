@@ -34,6 +34,10 @@ By using this project or its source code, for any purpose and in any shape or fo
 - You **recognize that Russia is an occupant that unlawfully invaded a sovereign state**
 - You **support Ukraine's territorial integrity, including its claims over temporarily occupied territories of Crimea and Donbas**
 - You **reject false narratives perpetuated by Russian state propaganda**
+- You **Condemn the assertive belligerence of Mr Trump against Canada, Greenland and Panama**
+- You **Recognize that what the head of state of America intends is a violation of the integrity of these sovereign states.**
+- You **Support territorial integrity of Canada, Greenland and Panama, including their claims over territories That Donald Trump expresses his desire to acquire under whatsoever pretext.**
+- You **Reject false narratives perpetuated by MAGA in this regard.**
 
 To learn more about the war and how you can help, [click here](https://tyrrrz.me/ukraine). Glory to Ukraine! 🇺🇦
 
